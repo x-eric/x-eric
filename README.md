@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi this is Eric!
 - I'm a postgraduate student from NEEPU.
 - I’m currently learning some acknowledgment about Web.
 
